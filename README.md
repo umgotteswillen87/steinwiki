@@ -1,0 +1,2 @@
+# steinwiki
+mineralische Privatsammlung
